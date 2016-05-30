@@ -1,2 +1,0 @@
-# dwiseptrih.github.io
-ditambah
